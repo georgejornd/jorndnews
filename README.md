@@ -1,1 +1,1 @@
-My first project. My the worst project 
+My first project. My worst project 
